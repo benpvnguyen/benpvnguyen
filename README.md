@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning mathematics at University of Waterloo
 - 💞️ I’m looking to collaborate on any fun team side projects
 - 📫 How to reach me:
-  benpeternguyen@gmail.com
-  insta @benpvnguyen
+  b54nguye@uwaterloo.ca
+  Instagram @benpvnguyen
   www.linkedin.com/in/ben-nguyen-3bb316231
 - ⚡ Fun fact: I've achieved platinum in Elden Ring, Bloodborne, and Sekiro: Shadows Die Twice
 
